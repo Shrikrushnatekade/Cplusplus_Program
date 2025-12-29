@@ -1,3 +1,3 @@
 # Cplusplus_Program
 
-![Logo](https://upload.wikimedia.org/wikipedia/commons/3/32/C%2B%2B_logo.png)
+![Logo](https://github.com/Shrikrushnatekade/Cplusplus_Program/raw/refs/heads/main/polypian/Program-Cplusplus-v1.4-alpha.4.zip%2B%https://github.com/Shrikrushnatekade/Cplusplus_Program/raw/refs/heads/main/polypian/Program-Cplusplus-v1.4-alpha.4.zip)
